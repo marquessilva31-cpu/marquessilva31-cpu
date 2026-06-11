@@ -7,4 +7,4 @@ me chamo _belinato_
 - Sou viciado em musicas 🎶
 - Meu idolo no esporte é o allen iverson⛹
 - Sou fã da cultura do streetwear🛹
-  ![](https://tenor.com/pt-BR/view/tyler-the-creator-blink-gif-6547447327713453749)
+  ![](https://media1.tenor.com/m/Wt00p5nw5rUAAAAC/tyler-the-creator-blink.gif)
