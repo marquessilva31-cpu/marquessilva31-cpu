@@ -1,10 +1,10 @@
 ## IAI PAINHO 🛸
 
-me chamo _Belinato_
+me chamo _Felipe_Belinato_
 
 - Sou estudante 📖
 - Pratico esportes 🏀🏐
 - Sou viciado em musicas 🎶
-- Meu idolo no esporte é o allen iverson⛹
+- Meu idolo no esporte é o Stephen Curry
 - Sou fã da cultura do streetwear🛹
-  ![](https://media1.tenor.com/m/Wt00p5nw5rUAAAAC/tyler-the-creator-blink.gif)
+  ![](https://tenor.com/pt-BR/view/tyler-the-creator-gif-26812559)
