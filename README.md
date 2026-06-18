@@ -1,6 +1,6 @@
-## IAE PRCR 🛸
+## IAI PAINHO 🛸
 
-me chamo _belinato_
+me chamo _Belinato_
 
 - Sou estudante 📖
 - Pratico esportes 🏀🏐
