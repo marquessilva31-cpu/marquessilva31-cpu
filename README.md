@@ -8,5 +8,5 @@ me chamo _Felipe_ _Belinato☭_
 - Meu idolo no esporte é o Julios Evirng
 - Sou fã da cultura do streetwear🛹
   
-  ![](https://tenor.com/pt-BR/view/tyler-the-creator-mf-doom-sticker-picture-gif-16409598960510484498)
+  ![](https://tenor.com/pt-BR/view/mf-doom-supervillain-illest-all-caps-doomsday-gif-26267265)
   
